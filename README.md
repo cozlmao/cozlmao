@@ -1,7 +1,7 @@
-hi im coz
-i do coding in these languages
-  - lua
-  - python
-  - html and css
-i do this for fun
-my discord is coz#9971
+hi i'm @cozlmao
+i'm interested in coding, languages i write in:
+- lua
+- python
+- html and css
+i like doing what im motivated for and don't want to force myself to do stuff
+
